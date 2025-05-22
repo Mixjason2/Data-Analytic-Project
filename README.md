@@ -108,7 +108,8 @@
 นาย ภาคินณัฏฐ์ พัฒนะจิรานันท์ 65102010200
 ,นาย นรบดี สิริวิทูร 65102010195
 
-**วันที่:** 2025  
+**รายงาน:** [รายงานโครงการวิเคราะห์ข้อมูล ](https://docs.google.com/document/d/1w3r7ri_YLJlhVHGgxqlmv1ayr683hJuOho7DX_Tjpfk/edit?usp=sharing) 
 
 ---
+**ลิงค์:** [พรีเซ็นรายงานโครงการวิเคราะห์ข้อมูล ](https://docs.google.com/document/d/1w3r7ri_YLJlhVHGgxqlmv1ayr683hJuOho7DX_Tjpfk/edit?usp=sharing) 
 
